@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-# Discord: dc.me/jddevelopment
+# Discord: [join](https://dc.me/jddevelopment)
